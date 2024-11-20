@@ -1,6 +1,9 @@
 # // onlypuppy7 // op7 // chalex0 //
 
-hello im currently wasting my life writing stupid programs which no one needs. i am british
+hello im currently wasting my life writing stupid programs which no one needs.
+
+> [!WARNING]
+> i am british
 
 ### nolife watch + worst languages tier list:
 
