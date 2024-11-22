@@ -14,8 +14,8 @@ hello im currently wasting my life writing stupid programs which no one needs.
 
 [**Buy Me a Coffee** ☕](https://buymeacoffee.com/onlypuppy7) – asset class with 0% returns  
 [**YouTube Channel** 📺](https://www.youtube.com/onlypuppy7) – stupid  
-[**(Other) YouTube Channel** 🎧](https://www.youtube.com/@op7-chalex0) – stupid  
-[**Personal Website** 🛠️](https://onlypuppy7.online) – stupid  
+[**(Other) YouTube Channel** 🎧](https://www.youtube.com/@op7-chalex0) – stupid!  
+[**Personal Website** 🛠️](https://onlypuppy7.online) – [stupid!!](https://www.youtube.com/watch?v=HTXgyb18sWg)  
 [**LegacyShell** 🥚](https://legacyshell.com) – i put effort in this  
 
 ### things i do best
